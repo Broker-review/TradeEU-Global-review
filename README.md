@@ -22,7 +22,7 @@ Selecting the right forex broker is essential for traders aiming to maximize pro
 | Liquidity power | No information | 
 | Mobile trading | Yes |
 
-![image]()
+![image](https://github.com/Broker-review/TradeEU-Global-review/blob/43c72d25d20504281d66b8b1198d90ca5dde6d2b/tradeeu%20global%20home.jpeg)
 
 Overview of TradeEU Global
 --------------------
